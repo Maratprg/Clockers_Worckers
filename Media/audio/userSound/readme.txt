@@ -1,0 +1,1 @@
+After you download and unzip this application game on you 64x device. You may import you favorite song in this directori and rename it CW128.ogg (file must be .ogg formatted not mp3!). You must rename it and after that it can be able in player in game. Enjoy you favorite song in game. 
